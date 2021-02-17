@@ -9,3 +9,8 @@
 
 
 ![52361723_NV_9000_photo](https://user-images.githubusercontent.com/78889189/108140349-33cd7000-70c2-11eb-8339-6c850e9f41cc.jpeg)
+
+
+![logo_florelie_deco](https://user-images.githubusercontent.com/78889189/108141344-d6d2b980-70c3-11eb-9e47-4f6622f82d3b.png)
+
+
